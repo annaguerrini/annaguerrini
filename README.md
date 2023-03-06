@@ -1,5 +1,4 @@
 ### Hi everyone 👋 I'm Anna! 
-I'm new to the tech world and excited to learn more and more! Front-end Developer / vlogger in spare time
 
 - 🔭 I find interest in tech, music, fantasy books and design! Always looking for more chanllenges to get me out of my comfort zone.
 - 🌱 I’m currently learning UX Design!
